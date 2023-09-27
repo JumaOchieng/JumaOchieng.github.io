@@ -18,4 +18,4 @@ Infused with an unwavering passion for the marriage of artistry and technology, 
 In pursuit of this vision, I bring forth inventive solutions that seamlessly fuse technology and creativity. Whether crafting user interfaces that feel intuitive, sculpting visually enchanting websites, or freezing moments in time through captivating photography, my aim is to stir emotions, kindle inspiration, and leave an enduring imprint.
 
 ### Contact
-Here is a link to my photography website, [Portfolio] (https://ygphotography6277.pixieset.com/) a link to my Github 1 account , [Github](https://github.com/Ygyuri). Follow me on LinkedIn [LinkedIn 1 account](https://www.linkedin.com/in/yuri-juma-04905325b/)
+Here is a link to my photography website, [Portfolio](https://ygphotography6277.pixieset.com/) a link to my Github 1 account , [Github](https://github.com/Ygyuri). Follow me on LinkedIn [LinkedIn 1 account](https://www.linkedin.com/in/yuri-juma-04905325b/)
